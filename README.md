@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dihydrogenthecoder
-- 👀 I’m interested in ...Coding, learning, Metal_Music🎸, Aquiring new skills
+- 👀 I’m interested in ...Coding, learning, Aquiring new skills
 - 🌱 I’m currently learning ...C, Python, C++, HTML, CSS, JavaScript 
 - 📫 How to reach me ...email me at ayushmishraofficial2711@gmail.com !
 - I am an Indian 
